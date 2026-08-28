@@ -1,2 +1,2 @@
-# Government-Arts-Science-College-Thennangur-Vandavasi-604-408
+# GOVERNMENT ARTS AND SCIENCE COLLEGE LIBRARY -Thennangur-Vandavasi-604-408
 GASCTLIBRARY
